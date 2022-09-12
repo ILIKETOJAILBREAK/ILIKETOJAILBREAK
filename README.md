@@ -1,1 +1,1 @@
-HELLO! I AM KORBAN, I AM HOPING TO LEARN CODE IN THE FUTURE SO THIS ACCOUNT WONT HAVE ANYTHING UNTILL THEN.
+Hello! I'm Korban. This account will only contribute until I go to college
